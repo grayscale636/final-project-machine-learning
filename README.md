@@ -1,1 +1,1 @@
-hai semua :')
+belajar puh
